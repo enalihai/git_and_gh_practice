@@ -1,0 +1,1 @@
+I went when I was but a young lad with my father. We hiked through the mountains for 12 days on a 70 mile trek. Carrying all of our rations and shelter, we found that the time away from civilization changed us for the better. The appreciation of the woods mixed with a fear of nature. I still think of that time to this day.
